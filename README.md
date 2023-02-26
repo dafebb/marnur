@@ -1,0 +1,2 @@
+# marnur
+Menghibur diri sendiri
